@@ -1,0 +1,1 @@
+# rahmat-10-minutli-ish-ekan-akmal-oka-
